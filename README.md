@@ -2,7 +2,7 @@
 - 👀 I’m interested in Making Minecraft mods
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on Anything!
-- 📫 How to reach me Friend me on discord: kingturrets123
+- 📫 How to reach me: Friend me on discord: kingturrets123
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like Minecraft!
 
